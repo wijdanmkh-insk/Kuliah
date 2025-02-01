@@ -1,0 +1,1 @@
+lu nyariin tugas anak telkom dan lu anak telkom? selamat! lu ada di tempat yang tepat! cuma gw susahnya ini belum bisa ngeorganize aja sih. ntar kalau udah di organize lu tau serapi dan sekeren apa soal lms telkom. selamat membaca dan semoga dari hasil gatcha soalnya bisa lu manfaatin sebaik-baiknya
